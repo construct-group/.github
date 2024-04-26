@@ -1,5 +1,5 @@
-## Construct Media Group or Construct United Media (CUM) 💦
-develop anytime and for free
+## Construct Media Group or Construct United Media (CUM) 💦 develop at any time and for free
+
 
 
 top quotes from our company   
